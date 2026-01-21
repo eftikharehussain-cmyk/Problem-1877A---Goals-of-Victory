@@ -1,1 +1,0 @@
-# Problem-1877A---Goals-of-Victory
